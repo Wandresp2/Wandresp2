@@ -3,6 +3,7 @@
 
 - 🔭 Actualmente estoy estudiando Ingeniería Industrial de 6° semestre 
 - 🌱 Me dedico a aprender sobre tech y crecer profesionalmente
+- 📖 Platzi student
 
 ## Vias de contacto
 
