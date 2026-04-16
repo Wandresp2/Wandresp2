@@ -6,4 +6,6 @@
 
 ## Vias de contacto
 
-https://www.linkedin.com/in/andr%C3%A9s-david-p%C3%A9rez-05bb82173/
+- **Linkedin:** https://www.linkedin.com/in/andr%C3%A9s-david-p%C3%A9rez-05bb82173/
+- **Email:** andresdperezc@gmail.com
+
